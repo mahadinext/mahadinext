@@ -12,7 +12,7 @@
 
 🌟 Software Engineer, Web Developer, Freelancer. \
 💼 NEXT Ventures. \
-🕕 3+ years of work experience. \
+🕕 4+ years of work experience. \
 🌍 Dhaka, Bangladesh. \
 🎓 Graduated from East West University (B.Sc, CSE, Spring-16). \
 📫 Mail me at: <a href="mailto:mahediihasan220@gmail.com">mahediihasan220@gmail.com</a>.
